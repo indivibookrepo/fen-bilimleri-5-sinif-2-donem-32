@@ -1,0 +1,1 @@
+# fen-bilimleri-5-sinif-2-donem-32
